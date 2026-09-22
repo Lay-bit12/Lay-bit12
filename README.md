@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **squaddov@gmail.com**
 
-- Interesting facts about me **I'm an introvert, I always try to help as much as I can**
+- Interesting facts about me **I always try to help as much as I can**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
